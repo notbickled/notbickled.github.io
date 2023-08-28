@@ -1,2 +1,2 @@
-# notbickled.github.io
-website? idk pls work
+# Bing qi lin
+omongus
